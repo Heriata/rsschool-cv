@@ -11,7 +11,7 @@
 ***
 ### **Briefly About Myself:**
 
-I want to die 24/7 \
+I want to die 24/7
 
 ```⠀⠀⠀
  ⠄⠄⠄⣾⣿⠿⠿⠶⠿⢿⣿⣿⣿⣿⣦⣤⣄⢀⡅⢠⣾⣛⡉⠄⠄⠄⠸⢀⣿⠄
