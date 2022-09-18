@@ -35,9 +35,6 @@ I want to die 24/7 \
 
 - HTML
 - Python
-- Adobe Premier, Adobe Photoshop
-- WoT 5k avg dmg
-
 
 ***
 ### **Code Example:**\
